@@ -1,2 +1,0 @@
-# techthakur
-All about tech
